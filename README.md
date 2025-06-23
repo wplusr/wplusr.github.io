@@ -1,2 +1,0 @@
-# wplusr.github.io
-wplusr
