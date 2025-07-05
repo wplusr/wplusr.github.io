@@ -1,11 +1,11 @@
-# Hi there, I'm William 👋
+# Hi there, I'm William Ramirez 👋
 
 ✨ Building dynamic web apps with Firebase.
 
 📊 Wrangling & analyzing data for insights in Colab.
 
-🤖 AI Integration for Productivity.
+🤖 Integrating AI for productivity.
 
-📝 Data Storytelling: [wranglers.io](https://wranglers.io)
+📝 Telling data stories at [wranglers.io](https://wranglers.io).
 
-📧 Email: [wramirez@duck.com](mailto:wramirez@duck.com)
+📧 Reach out to me at [wramirez@duck.com](mailto:wramirez@duck.com)!
