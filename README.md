@@ -6,6 +6,6 @@
 
 🤖 AI Integration for Productivity.
 
-<br>
+📝 Data Storytelling: [wranglers.io](https://wranglers.io)
 
-Email: wramirez@duck.com
+📧 Email: [wramirez@duck.com](mailto:wramirez@duck.com)
