@@ -6,6 +6,6 @@
 
 🤖 Integrating AI for productivity.
 
-📝 Telling data stories at [wranglers.io](https://wranglers.io).
+📝 Jupyter notebooks at [wranglers.io](https://wranglers.io).
 
 📧 Reach out to me at [wramirez@duck.com](mailto:wramirez@duck.com)!
