@@ -1,4 +1,4 @@
-# hi there, i'm william 👋
+# hello, i'm william 👋
 
 ✨ building dynamic web apps with firebase.
 
