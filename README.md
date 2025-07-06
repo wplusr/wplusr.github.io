@@ -6,7 +6,7 @@
 
 🤖 Integrating AI for productivity.
 
-📝 Jupyter notebooks at [wranglers.io](https://wranglers.io).
+📝 [Click here](colab/everydaystocks.ipynb) for my Jupyter notebooks.
 
 📧 Reach out to me at [wramirez@duck.com](mailto:wramirez@duck.com)!
 
