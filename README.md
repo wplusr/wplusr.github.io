@@ -2,7 +2,7 @@
 
 ✨ building dynamic web apps with firebase.
 
-📊 wrangling & analyzing data for insights in Colab.
+📊 wrangling & analyzing data for insights in colab.
 
 🤖 integrating ai for productivity.
 
