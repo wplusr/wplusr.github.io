@@ -6,7 +6,7 @@
 
 🤖 Integrating AI for productivity.
 
-📝 [Click here](colab/everydaystocks.ipynb) for my Jupyter notebooks.
+📝 [Click here](https://github.com/wplusr/wplusr.github.io/tree/main/colab) for my Jupyter notebooks.
 
 📧 Reach out to me at [wramirez@duck.com](mailto:wramirez@duck.com)!
 
