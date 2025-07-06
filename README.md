@@ -1,14 +1,14 @@
-# hello, i'm william 👋
+# Hello, I'm William 👋
 
-✨ building dynamic web apps with firebase.
+✨ Building dynamic web apps with Firebase.
 
-📊 wrangling & analyzing data for insights in colab.
+📊 Wrangling & analyzing data for insights in Colab.
 
-🤖 integrating ai for productivity.
+🤖 Integrating AI for productivity.
 
-📝 see my data stories: [github.io/jupyter/...](https://github.com/wplusr/wplusr.github.io/tree/main/jupyter)
+📝 See my data stories: [wplusr.github.io/jupyter/...](https://github.com/wplusr/wplusr.github.io/tree/main/jupyter)
 
-📧 reach out to me at [wramirez@duck.com](mailto:wramirez@duck.com)!
+📧 Reach out to me at [wramirez@duck.com](mailto:wramirez@duck.com)!
 
 <img src="https://www.icegif.com/wp-content/uploads/2024/11/cat-icegif-1.gif"/>
 
