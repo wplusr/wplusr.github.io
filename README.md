@@ -6,7 +6,7 @@
 
 🤖 integrating ai for productivity.
 
-📝 see my data stories: [wplusr.github.io/jupyter/...](https://github.com/wplusr/wplusr.github.io/tree/main/jupyter)
+📝 see my data stories: [github.io/jupyter/...](https://github.com/wplusr/wplusr.github.io/tree/main/jupyter)
 
 📧 reach out to me at [wramirez@duck.com](mailto:wramirez@duck.com)!
 
