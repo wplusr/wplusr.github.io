@@ -6,7 +6,7 @@
 
 🤖 Integrating AI for productivity.
 
-📝 My Jupyter notebooks: [drive.google.com/...](https://drive.google.com/drive/folders/1kNSIikGimF3cJ7NldrdprPAKLM2VR278?usp=drive_link)
+📝 See my data stories: [wplusr.github.io/jupyter/...](https://github.com/wplusr/wplusr.github.io/tree/main/jupyter)
 
 📧 Reach out to me at [wramirez@duck.com](mailto:wramirez@duck.com)!
 
