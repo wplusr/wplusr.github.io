@@ -10,6 +10,5 @@
 
 📧 Reach out to me at [wramirez@duck.com](mailto:wramirez@duck.com)!
 
-<img src="https://www.icegif.com/wp-content/uploads/2024/11/cat-icegif-1.gif"/>
 
 
