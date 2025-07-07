@@ -6,7 +6,7 @@
 
 🤖 Integrating AI for productivity.
 
-🌴 Visit my blog at [thefloridajournal.com](https://www.thefloridajournal.com/).
+🏴‍☠️ Visit my blog at [thefloridajournal.com](https://www.thefloridajournal.com/).
 
 🦆 Reach out to me at [wramirez@duck.com](mailto:wramirez@duck.com)!
 
