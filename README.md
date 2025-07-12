@@ -6,8 +6,6 @@
 
 🤖 Integrating AI for productivity.
 
-🏴‍☠️ Blogger: [thefloridajournal.com](https://www.thefloridajournal.com/)
-
 🧵 Threads: [threads.com/@wplusr](https://www.threads.com/@wplusr)
 
 🦆 Email: [wramirez@duck.com](mailto:wramirez@duck.com)
