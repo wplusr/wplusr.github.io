@@ -4,7 +4,7 @@
 
 📊 Wrangling & analyzing data for insights in Colab.
 
-🤖 Integrating Gemini Code Assist for boost productivity.
+🤖 Integrating Gemini Code Assist for productivity.
 
 🧵 Threads: [threads.com/@wplusr](https://www.threads.com/@wplusr)
 
