@@ -1,3 +1,10 @@
-![](https://platform.theverge.com/wp-content/uploads/sites/2/chorus/uploads/chorus_asset/file/22310826/poptart1redrainbowfix_1.gif?quality=90&strip=all&crop=0,16.666666666667,100,66.666666666667)
+✏️ [blogger](https://www.thefloridajournal.com/)
 
-🦆 Email: [wramirez@duck.com](mailto:wramirez@duck.com)
+👤 [facebook](https://www.facebook.com/swflwilliam/)
+
+📷 [instagram](https://www.instagram.com/wplusr/?hl=en)
+
+🧵 [threads](https://www.threads.com/@wplusr)
+
+📺 [youtube](https://www.youtube.com/@wplusr)
+
