@@ -1,4 +1,4 @@
-✏️ [blogger](https://www.thefloridajournal.com/)
+📝 [blogger](https://www.thefloridajournal.com/)
 
 👤 [facebook](https://www.facebook.com/swflwilliam/)
 
