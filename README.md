@@ -12,3 +12,5 @@ English (239) 246-3380 / [wplusr@icloud.com](mailto:wplusr@icloud.com)
 
 [weathersafe.us](https://weathersafe.us) / Español (239) 229-4055
 
+
+Licensed & Insured / CCC1337014
