@@ -1,6 +1,4 @@
 ![](20253031340-20253031910-ABI-AL132025-GEOCOLOR-1000x1000.gif)
 ### **William Ramirez**, Roof Estimator
-
+**Lehigh Acres • Fort Myers • Cape Coral • Naples**
 **(239) 246-3380** / **[wplusr@icloud.com](mailto:wplusr@icloud.com)**
-
-**Locations:** Lehigh Acres, Fort Myers, Sanibel, Cape Coral, Estero, Bonita Springs, Naples and Marco Island.
