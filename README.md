@@ -10,7 +10,7 @@
 Lehigh Acres • Fort Myers • Cape Coral • Naples
 
 
-English (239) 246-3380 / [wplusr@icloud.com](mailto:wplusr@icloud.com)
+English (239) 246-3380 / [wramirez@duck.com](mailto:wramirez@duck.com)
 
 
 [weathersafe.us](https://weathersafe.us) / Español (239) 229-4055
