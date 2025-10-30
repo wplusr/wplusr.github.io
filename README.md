@@ -7,6 +7,9 @@ Lehigh Acres • Fort Myers • Cape Coral • Naples
 ### William Ramirez, Roof Estimator
 
 
+Shingles • Metal • Tile
+
+
 English (239) 246-3380 / [wplusr@icloud.com](mailto:wplusr@icloud.com)
 
 
