@@ -3,4 +3,4 @@
 
 **(239) 246-3380** / **[wplusr@icloud.com](mailto:wplusr@icloud.com)**
 
-Locations: Lehigh Acres, Fort Myers, Sanibel, Cape Coral, Estero, Bonita Springs, Naples and Marco Island.
+**Locations:** Lehigh Acres, Fort Myers, Sanibel, Cape Coral, Estero, Bonita Springs, Naples and Marco Island.
