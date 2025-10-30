@@ -1,7 +1,7 @@
 ![](20253031340-20253031910-ABI-AL132025-GEOCOLOR-1000x1000.gif)
 
 
-LEHIGH ACRES • FORT MYERS • CAPE CORAL • NAPLES
+Lehigh Acres • Fort Myers • Cape Coral • Naples
 
 
 ### William Ramirez, Roof Estimator
