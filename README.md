@@ -7,6 +7,4 @@
 ### William Ramirez, Field Estimator
 
 
-(239) 246-3380 / wramirez@duck.com
-
-thefloridajournal.com
+(239) 246-3380 / [wramirez@duck.com](mailto:wramirez@duck.com)
