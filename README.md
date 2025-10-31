@@ -6,6 +6,8 @@
 
 ### William Ramirez, Field Estimator
 
+I estimate roofs and keep them weather safe.
+
 Phone: (239) 246-3380 
 
 Email: [wramirez@duck.com](mailto:wramirez@duck.com)
