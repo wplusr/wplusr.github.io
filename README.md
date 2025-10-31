@@ -10,8 +10,10 @@ I estimate roofs and keep them weather safe.
 
 **Lehigh Acres • Fort Myers • Cape Coral • Naples**
 
+Book a free roof inspection!
+
 Phone: (239) 246-3380 
 
 Email: [wramirez@duck.com](mailto:wramirez@duck.com)
 
-Book a free estimate! [weathersafe.us](weathersafe.us)
+[weathersafe.us](weathersafe.us)
