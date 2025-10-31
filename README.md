@@ -6,10 +6,12 @@
 
 ### William Ramirez, Roof Estimator
 
+I estimate roofs and keep them weather safe.
+
 **Lehigh Acres • Fort Myers • Cape Coral • Naples**
 
 Phone: (239) 246-3380 
 
 Email: [wramirez@duck.com](mailto:wramirez@duck.com)
 
-[weathersafe.us](weathersafe.us)
+Book at free estimate! [weathersafe.us](weathersafe.us)
