@@ -4,10 +4,10 @@
 [*NATIONAL HURRICANE CENTER*](https://www.nhc.noaa.gov/)
 
 
-### William Ramirez, Field Estimator
-
-
 Lehigh Acres • Fort Myers • Cape Coral • Naples
+
+
+### William Ramirez, Field Estimator
 
 
 (239) 246-3380 / [wramirez@duck.com](mailto:wramirez@duck.com)
