@@ -12,10 +12,8 @@ Lehigh Acres • Fort Myers • Cape Coral • Naples
 
 Book your free roof check!
 
-Phone: (239) 246-3380 
+☎️ (239) 246-3380 
 
-Email: [wramirez@duck.com](mailto:wramirez@duck.com)
+✉️ [wramirez@duck.com](mailto:wramirez@duck.com)
 
-Working with [WeatherSafe Roofing, Inc](https://www.weathersafe.us/)
-
-CCC1337014
+[WeatherSafe Roofing, Inc](https://www.weathersafe.us/) • CCC1337014
