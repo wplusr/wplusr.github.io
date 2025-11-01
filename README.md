@@ -1,6 +1,6 @@
 ![](https://i.pinimg.com/originals/94/94/67/9494670107a8f1f75a069a5a64097011.gif)
 
-*HAPPY HALLOWEEN!* 🎃
+HAPPY HALLOWEEN! 🎃
 
 ### William Ramirez, Roof Estimator
 
