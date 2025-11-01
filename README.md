@@ -1,4 +1,4 @@
-![](https://cdn.pixabay.com/animation/2023/10/20/03/38/03-38-03-793_512.gif)
+![](https://cdn.dribbble.com/userupload/21820852/file/original-c9846971f56609556ce28c7e0d9aa841.gif)
 
 [*Book on WhatsApp!*](https://wa.me/12392463380)
 
