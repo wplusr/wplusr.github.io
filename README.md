@@ -1,8 +1,6 @@
-![](https://i.pinimg.com/originals/6f/f1/9d/6ff19d03ebc1b847ea376dab187606c1.gif)
+![](https://i.pinimg.com/originals/94/94/67/9494670107a8f1f75a069a5a64097011.gif)
 
-
-[*NATIONAL HURRICANE CENTER*](https://www.nhc.noaa.gov/)
-
+*HAPPY HALLOWEEN!* 🎃
 
 ### William Ramirez, Roof Estimator
 
