@@ -8,7 +8,7 @@
 
 I estimate roofs and keep them weather safe.
 
-📍 Lehigh Acres • Fort Myers • Cape Coral • Naples
+Lehigh Acres • Fort Myers • Cape Coral • Naples
 
 ✅ Book your free roof check!
 
@@ -16,4 +16,4 @@ I estimate roofs and keep them weather safe.
 
 ✉️ [wramirez@duck.com](mailto:wramirez@duck.com)
 
-🛡️ [WeatherSafe Roofing, Inc](https://www.weathersafe.us/) • CCC1337014
+[WeatherSafe Roofing, Inc](https://www.weathersafe.us/) • CCC1337014
