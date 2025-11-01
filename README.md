@@ -8,9 +8,7 @@
 
 [Book your free roof check!](2392463380)
 
-Keeping roofs weather safe
-
-Shingle • Metal • Tile • Flat
+Keeping roofs weather safe in Southwest Florida
 
 Lehigh Acres • Fort Myers • Cape Coral • Naples
 
