@@ -1,4 +1,4 @@
-![](IMG_1521.gif)
+![](https://images.squarespace-cdn.com/content/v1/54b92ae8e4b0b6572f7dacb1/1475492898761-94QK20E08UFQHKD0ZHM2/image-asset.gif)
 
 [*Book on WhatsApp!*](https://wa.me/12392463380)
 
