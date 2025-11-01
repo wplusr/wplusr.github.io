@@ -10,8 +10,6 @@ Shingle, metal and tile roof repairs and replacements.
 
 Lehigh Acres • Fort Myers • Cape Coral • Naples
 
-Text [(239) 246-3380](sms:12392463380) 
-
-Email [wramirez@duck.com](mailto:wramirez@duck.com)
+Text: [(239) 246-3380](sms:12392463380) Email: [wramirez@duck.com](mailto:wramirez@duck.com)
 
 With [WeatherSafe Roofing, Inc](https://www.weathersafe.us/) (CCC1337014)
