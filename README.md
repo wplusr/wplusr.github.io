@@ -10,6 +10,6 @@
 
 Lehigh Acres • Fort Myers • Cape Coral • Naples
 
-Text: (239) 246-3380 / Email: [wramirez@duck.com](mailto:wramirez@duck.com)
+(239) 246-3380 / [wramirez@duck.com](mailto:wramirez@duck.com)
 
 Working with [WeatherSafe Roofing, Inc](https://www.weathersafe.us/) • CCC1337014
