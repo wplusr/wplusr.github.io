@@ -6,11 +6,11 @@
 
 ### William Ramirez, Roof Estimator
 
+[Book your free roof check!](tel:2392463380)
+
 I estimate roofs and keep them weather safe.
 
 Lehigh Acres • Fort Myers • Cape Coral • Naples
-
-Book your free roof check!
 
 Text: (239) 246-3380 
 
