@@ -8,7 +8,7 @@
 
 [Book your free roof check!](tel:2392463380)
 
-Estimates for shingle, metal and tile roofs. 
+Repairs to full replacements for shingle, metal and tile roofs. 
 
 Lehigh Acres • Fort Myers • Cape Coral • Naples
 
