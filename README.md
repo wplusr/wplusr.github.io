@@ -1,4 +1,4 @@
-![](https://static.wixstatic.com/media/69cff3_7d4cc9e8bd5b40b2b0a4e5a5a972ea0f~mv2.gif)
+![](https://images.squarespace-cdn.com/content/v1/54b92ae8e4b0b6572f7dacb1/1475492898761-94QK20E08UFQHKD0ZHM2/image-asset.gif)
 
 []()
 
