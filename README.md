@@ -1,4 +1,4 @@
-![](20253031340-20253031910-ABI-AL132025-GEOCOLOR-1000x1000.gif)
+![](https://i.pinimg.com/originals/6f/f1/9d/6ff19d03ebc1b847ea376dab187606c1.gif)
 
 
 [*NATIONAL HURRICANE CENTER*](https://www.nhc.noaa.gov/)
