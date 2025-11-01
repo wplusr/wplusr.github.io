@@ -4,7 +4,7 @@
 
 ### William Ramirez, Field Estimator
 
-[Book on WhatsApp!](https://wa.me/12392463380?text=Hi%20William,%20I’d%20like%20to%20book%20a%20roof%20check.)
+[Book on WhatsApp!](https://wa.me/12392463380)
 
 Shingle, metal and tile roof repairs and replacements. 
 
