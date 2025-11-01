@@ -8,7 +8,7 @@
 
 [Book your free roof check!](2392463380)
 
-Keeping roofs weather safe in Southwest Florida
+Small repairs to big replacements for shingle, metal and tile. 
 
 Lehigh Acres • Fort Myers • Cape Coral • Naples
 
