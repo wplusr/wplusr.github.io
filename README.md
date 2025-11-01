@@ -1,6 +1,6 @@
-![](https://i.redd.it/6e6jk2ri8nqb1.gif)
+![]()
 
-[]()s
+[]()
 
 ### William Ramirez, Field Estimator
 
