@@ -8,7 +8,7 @@
 
 [Book your free roof check!](2392463380)
 
-I estimate roofs and keep them weather safe.
+Estimating roofs and keep them weather safe.
 
 Lehigh Acres • Fort Myers • Cape Coral • Naples
 
