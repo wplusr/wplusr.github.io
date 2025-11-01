@@ -1,6 +1,6 @@
-![](https://i.pinimg.com/originals/94/94/67/9494670107a8f1f75a069a5a64097011.gif)
+![](https://i.redd.it/6e6jk2ri8nqb1.gif)
 
-HAPPY HALLOWEEN! 🎃
+[]()
 
 ### William Ramirez, Field Estimator
 
