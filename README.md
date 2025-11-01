@@ -10,6 +10,8 @@
 
 Keeping roofs weather safe
 
+Shingle • Metal • Tile • Flat
+
 Lehigh Acres • Fort Myers • Cape Coral • Naples
 
 (239) 246-3380 • [wramirez@duck.com](mailto:wramirez@duck.com)
