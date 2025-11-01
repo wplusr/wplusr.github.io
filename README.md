@@ -1,10 +1,8 @@
 ![](https://images.squarespace-cdn.com/content/v1/54b92ae8e4b0b6572f7dacb1/1475492898761-94QK20E08UFQHKD0ZHM2/image-asset.gif)
 
-[*NATIONAL HURRICANE CENTER*](https://www.nhc.noaa.gov/)
+[BOOK ON WHATSAPP!](https://wa.me/12392463380)
 
 ### William Ramirez, Field Estimator
-
-[Book on WhatsApp!](https://wa.me/12392463380)
 
 Shingle, metal and tile roof repairs and replacements. 
 
