@@ -1,4 +1,4 @@
-![]()
+![](https://static.wixstatic.com/media/69cff3_7d4cc9e8bd5b40b2b0a4e5a5a972ea0f~mv2.gif)
 
 []()
 
