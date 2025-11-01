@@ -1,4 +1,4 @@
-![](https://images.squarespace-cdn.com/content/v1/54b92ae8e4b0b6572f7dacb1/1475492898761-94QK20E08UFQHKD0ZHM2/image-asset.gif)
+![](https://i.pinimg.com/originals/f3/c8/f9/f3c8f9ea0ce3de3991a9ebd35bfd7495.gif)
 
 [*Book on WhatsApp!*](https://wa.me/12392463380)
 
