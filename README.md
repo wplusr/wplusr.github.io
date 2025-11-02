@@ -10,7 +10,7 @@
 
 • Drainage shaping (swales & ditches)
 
-• Storm cleanup (debris removal, washouts)
+• Storm cleanup (debris removal & washouts)
 
 Lehigh Acres • Fort Myers • Cape Coral
 
