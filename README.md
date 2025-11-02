@@ -4,11 +4,11 @@
 
 [*Send site photos on WhatsApp for a fast quote.*](https://wa.me/12392463380)
 
-• Grading (lots, driveways)
+• Lot & driveway grading (rock/base)
 
-• Clearing & haul-off (brush, sod/soil)
+• Clearing & haul-off (brush, sod, soil)
 
-• Pad prep (sheds/patios/pavers)
+• Pad prep (sheds, patios, pavers)
 
 • Drainage shaping & storm cleanup
 
