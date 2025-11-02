@@ -1,6 +1,6 @@
 ![](IMG_1561.gif)
 
-Skid Steer Grading & Clearing
+**Skid Steer Grading & Clearing**
 
 • Lot & driveway grading (rock & base)
 
