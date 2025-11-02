@@ -14,4 +14,4 @@
 
 Lehigh Acres • Fort Myers • Cape Coral
 
-Text:[(239) 246-3380](sms:2392463380) • Email:[wramirez@duck.com](mailto:wramirez@duck.com)
+Text: [(239) 246-3380](sms:2392463380) • Email: [wramirez@duck.com](mailto:wramirez@duck.com)
