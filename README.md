@@ -2,15 +2,17 @@
 
 ## Skid Steer Grading & Clearing
 
-[*Send site photos on WhatsApp for a fast quote.*](https://wa.me/12392463380)
+[*Send site photos via WhatsApp for a fast quote.*](https://wa.me/12392463380)
 
-• Lot & driveway grading (rock/base)
+• Lot & driveway grading (rock & base)
 
 • Clearing & haul-off (brush, sod, soil)
 
 • Pad prep (sheds, patios, pavers)
 
-• Drainage shaping (swales/ditches)
+• Drainage shaping (swales & ditches)
+
+• Storm cleanup (debris removal, washouts)
 
 Lehigh Acres • Fort Myers • Cape Coral
 
