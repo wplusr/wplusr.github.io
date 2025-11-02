@@ -16,4 +16,4 @@ Lehigh Acres • Fort Myers • Cape Coral • Naples
 
 [(239) 246-3380](sms:2392463380) • [wplusr@icloud.com](mailto:wplusr@icloud.com)
 
-Service available on weekends only.
+Insured Operator • Weekends Only 
