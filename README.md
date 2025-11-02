@@ -1,6 +1,6 @@
 ![](IMG_1561.gif)
 
-**Skid-Steer Grading & Clearing**
+**Lehigh Acres Grading & Clearing**
 
 • Lot & driveway grading (rock & base)
 
@@ -11,7 +11,5 @@
 • Drainage shaping (swales & ditches)
 
 • Storm cleanup (debris removal & washouts)
-
-Lehigh Acres • Fort Myers • Cape Coral • Naples
 
 Text: [(239) 246-3380](sms:2392463380) • Email: [wplusr@icloud.com](mailto:wplusr@icloud.com)
