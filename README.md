@@ -2,7 +2,7 @@
 
 [*Book on WhatsApp!*](https://wa.me/12392463380)
 
-### William Ramirez, Skid Steer Operator 
+### Skid Steer Grading & Clearing
 
 Lehigh Acres • Fort Myers • Cape Coral • Naples
 
