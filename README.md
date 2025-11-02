@@ -2,7 +2,7 @@
 
 ## Skid Steer Grading & Clearing
 
-HURRICANE & STORM CLEANUP
+🌀HURRICANE & STORM CLEANUP
 
 • Lot & driveway grading (rock & base)
 
