@@ -10,7 +10,9 @@
 
 • Pad prep (sheds, patios, pavers)
 
-• Drainage shaping (swales/ditches) & storm cleanup
+• Drainage shaping (swales/ditches)
+
+• Storm cleanup (debris removal, washouts)
 
 Lehigh Acres • Fort Myers • Cape Coral • Naples
 
