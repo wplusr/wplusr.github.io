@@ -2,7 +2,7 @@
 
 ### Skid Steer Grading & Clearing
 
-[*Send site photos on WhatsApp for a fast quote.*](https://wa.me/12392463380)
+📸[*Send site photos on WhatsApp for a fast quote.*](https://wa.me/12392463380)
 
 • Lot & driveway grading (rock/base)
 
