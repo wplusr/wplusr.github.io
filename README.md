@@ -4,19 +4,13 @@
 
 ### Skid Steer Grading & Clearing
 
-• Lot grading (rough and final)
+• Grading (lots, driveways)
 
-• Driveway/base prep and rock spread
+• Clearing & haul-off (brush, sod/soil)
 
-• Brush and scrub clearing
+• Pad prep (sheds/patios/pavers)
 
-• Soil and sod scrape with haul-off
-
-• Pad prep for sheds, patios, pavers
-
-• Drainage shaping for swales and ditches
-
-• After-storm debris cleanup
+• Drainage shaping & storm cleanup
 
 Lehigh Acres • Fort Myers • Cape Coral • Naples
 
