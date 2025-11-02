@@ -2,6 +2,8 @@
 
 **Lehigh Acres Grading & Clearing**
 
+[*HURRICANE PREPARATION GUIDE*](https://www.leegov.com/hurricane)
+
 • Lot & driveway grading (rock & base)
 
 • Clearing & haul-off (brush, sod, soil)
