@@ -1,6 +1,6 @@
 ![](IMG_1561.gif)
 
-**Lehigh Acres Grading & Clearing (Weekends Only)**
+**Lehigh Acres Grading & Clearing**
 
 • Lot & driveway grading (rock & base)
 
