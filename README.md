@@ -2,6 +2,8 @@
 
 ### Skid Steer Grading & Clearing
 
+[*Send site photos on WhatsApp for a fast quote.*](https://wa.me/12392463380)
+
 • Lot & driveway grading (rock/base)
 
 • Clearing & haul-off (brush, sod, soil)
@@ -17,5 +19,3 @@ Lehigh Acres • Fort Myers • Cape Coral • Naples
 [(239) 246-3380](sms:2392463380) • [wramirez@duck.com](mailto:wramirez@duck.com)
 
 Insured Operator • Weekends Only • Free Quotes
-
-[*Send site photos on WhatsApp for a fast quote.*](https://wa.me/12392463380)
