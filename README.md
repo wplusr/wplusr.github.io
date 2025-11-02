@@ -2,7 +2,7 @@
 
 ## Skid Steer Grading & Clearing
 
-[*Send site photos via WhatsApp for a fast quote.*](https://wa.me/12392463380)
+HURRICANE & STORM CLEANUP
 
 • Lot & driveway grading (rock & base)
 
