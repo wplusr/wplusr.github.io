@@ -1,6 +1,6 @@
 ![](IMG_1561.gif)
 
-### Skid Steer Grading & Clearing
+## Skid Steer Grading & Clearing
 
 [*Send site photos on WhatsApp for a fast quote.*](https://wa.me/12392463380)
 
