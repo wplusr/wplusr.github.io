@@ -13,5 +13,3 @@
 • Storm cleanup (debris removal & washouts)
 
 Text: [(239) 246-3380](sms:2392463380) • Email: [wplusr@icloud.com](mailto:wplusr@icloud.com)
-
-![](IMG_1561.gif)
