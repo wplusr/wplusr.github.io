@@ -1,2 +1,1 @@
-short filmmaker
-![](images/short.gif)
+![short filmmaker](images/short.gif)
